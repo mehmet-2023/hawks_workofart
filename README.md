@@ -1,2 +1,0 @@
-# hawks_workofart
-WOW
